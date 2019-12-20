@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Business Insider](https://www.businessinsider.com/skull-and-bones-alumni-2011-2)
